@@ -1,4 +1,4 @@
-## Hi there 👋 I LOVE FURRY
+## ✨Do not go gentle into that good night.✨
 
 <!--
 **HCCFish/HCCFISH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
